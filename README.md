@@ -3,7 +3,7 @@
 
 ### How to reach me: 
 
- - telegam - [@mr_mz_1989](https://t.me/dmkhandus) 
+ - telegam - [@dmkhandus](https://t.me/dmkhandus) 
  - email - khandusdm@gmail.com
 
 Techonologies | Description | Tools
